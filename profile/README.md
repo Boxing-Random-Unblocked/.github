@@ -4,6 +4,8 @@ Are you ready to dive into **an epic, insane, and hilarious combat game**? Look 
 
 Whether you're at school, at work, or just killing time at home, this **unblocked** game lets you **fight anytime, anywhere** – no restrictions, no downloads, no limits.
 
+## <a href="https://izigames.net/">👉 Play Boxing Random Unblocked 👈</a>
+
 ---
 
 ## 💥 What is Boxing Random?
